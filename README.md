@@ -125,5 +125,3 @@ https://drive.google.com/file/d/1B8cTRFYsDeas3e0HmtGlNf7F8wzKgtqW/view?usp=shari
 
 ---
 
-## 🙌 Author
-**Akhila Priya Nookarapu**
